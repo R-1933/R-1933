@@ -1,4 +1,4 @@
-<h1 align="center">Greetings Non-Vigiliant Automatons</h1>
+<h1 align="center">Salutations! Non-Vigiliant Automatons</h1>
 <h3 align="center">Strive for simplistic</h3>
 
 - 🔶 My name is ethan, but you can call me SVD
