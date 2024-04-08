@@ -12,7 +12,7 @@
 
 - 💬 Ask me about **how pulchritudinous life is**
 
-- ⚡ Fun fact <> **Horror Enthusiast / Classic Movie Enjoyer / Simple & Straightforward**
+- ⚡ Fun fact ! **Horror Enthusiast / Classic Movie Enjoyer / Simple & Straightforward**
 
  
 <h3 align="left">Connect with me:</h3>
